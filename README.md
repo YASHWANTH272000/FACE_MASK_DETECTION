@@ -12,6 +12,6 @@ YASHWANTH K       - 1KS18CS121
 
 GUIDED BY:
        
-          SOUGANDHIKA NARAYAN
+          Mrs Pavithra J
 
 
